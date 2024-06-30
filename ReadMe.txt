@@ -1,5 +1,3 @@
-Bar Shwatrz 313162265  
-Alexndr Savitsky 316611409 
 
 
 Our folder
